@@ -2,7 +2,8 @@
 (who the hell put this emoji in there)
 - how 2 reach me
 use discord im Et#0867
-my email is kinda ""crinj"" lol find it
+my email is kinda cringe
+you'll find it eventually
 
 
 
